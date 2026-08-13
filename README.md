@@ -1,2 +1,2 @@
 # Programaci-n2Individuall
-Hola soy Mayra, me gusta leer y salir con mis amigos
+Hola soy Mayra, estoy en la licenciatura de informática, y me gusta leer y salir con mis amigos
